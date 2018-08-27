@@ -1,2 +1,2 @@
 # lxsgs.github.io
-LiuXiang's page home
+LiuXiang's home page
